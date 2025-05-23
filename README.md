@@ -35,7 +35,7 @@ azroy-portfolio
 ## 📫 Contact
 
 - 📧 Email: [azroyiskandar383@gmail.com](mailto:azroyiskandar383@gmail.com)
-- 💬 WhatsApp: [Click to chat](https://wa.me/60XXXXXXXXX) soon!
+- 💬 WhatsApp (soon) : [Click to chat](https://wa.me/60XXXXXXXXX)
 
 ---
 
